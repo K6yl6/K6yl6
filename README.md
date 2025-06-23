@@ -2,7 +2,7 @@
 - 👀 I’m interested in Machine Learning and ethical hacking
 - 🌱 I’m currently learning ethical hacking
 - 💞️ I’m looking to collaborate on projects
-- 📫 How to reach me kynot.ephraim on instagram or ephraimsefa@gmail.com
+- 📫 How to reach me ephraim.sefa on instagram or ephraimsefa@gmail.com
   
 
 <!---
